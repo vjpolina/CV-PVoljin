@@ -1,6 +1,7 @@
-## Voljn Polina
+## Voljn Polina CV
 
-***Educatie:***
+### Educatie:
+
 *Gimnaziu:* Liceul Teoretic "Mircea Eliade" or. Nisporeni
 
 *Extracuriculare:* 
