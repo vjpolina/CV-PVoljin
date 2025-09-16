@@ -11,3 +11,8 @@
 *Calificatii:*
 - Engleza nivel C2 (certificat Cambridge)
 - Franceza nivel B1
+
+*Social Media:*
+- Instagram: @that___po___
+- Tiktok: @stell__e
+- Discord: @that__po
